@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @brun-jc
 - 👀 I’m interested in Taiko / 15th century Japan / SF literature / video games
-- 🌱 I’m currently learning a lot.
+- 🌱 I’m currently listening to music.
 - 💞️ I’m looking to collaborate on ... ... .. .
 - 📫 How to reach me : Jean-Charles.BRUN@prestataire.sihm.fr
 
